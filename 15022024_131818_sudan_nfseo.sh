@@ -1,0 +1,1 @@
+The more a person struggles to get out of quicksand the faster they will sink. Staying still, and being calm will actually make the body float in the quicksand because the body is less dense than the quicksand is
