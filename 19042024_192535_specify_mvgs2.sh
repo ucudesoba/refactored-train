@@ -1,0 +1,1 @@
+In 1888, an Egyptian peasant discovered an estimated three hundred thousand mummified cats in Beni Hassan, Egypt. Of the cats that were not stolen once, the find was made public, the remaining mummified cats were shipped to Great Britain to be used as agricultural fertilizer
